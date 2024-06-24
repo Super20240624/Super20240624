@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Super20240624
+- 👀 I’m interested in Gaming and Music
+- 🌱 I’m currently learning German
+- 😄 Pronouns: He
+- ⚡ Fun fact: I love eating sushi!
